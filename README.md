@@ -15,9 +15,12 @@ List of Alibaba Stores who accept paypal or are good in general..
 
 ## Clothing
 
-#### Sportswear - 10-50 Pieces min order - (Face Mask, Long Sleeve Rash Guard, Short sleeve Rash Guard, Fight Shorts, Vale Tudo Shorts, Spats & Tights, Wrestling Singlet, BJJ Jiu Jitsu Gi, Training Wear, Fashion Wear, Team Wear, Scarf, Headbands, Arm Sleeves)
-https://risesportswear.en.alibaba.com/?spm=a2700.details.cordpanyb.4.772722aboyNR8R
+#### Sportswear
+https://risesportswear.en.alibaba.com/?spm=a2700.details.cordpanyb.4.772722aboyNR8R ( 10-50 Pieces min order - Face Mask, Long Sleeve Rash Guard, Short sleeve Rash Guard, Fight Shorts, Vale Tudo Shorts, Spats & Tights, Wrestling Singlet, BJJ Jiu Jitsu Gi, Training Wear, Fashion Wear, Team Wear, Scarf, Headbands, Arm Sleeves)
 
+
+#### Streetwear
+- https://maqiapparel.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.17.15f16b7agYldy3 ( 100 Pieces min order - Tracksuits, Hoodies & Sweashirts, Jackets, Pants & Trousers, Shorts, Boardshorts, T-Shirts, Tank Tops, Polo Shirts)
 
 
 
