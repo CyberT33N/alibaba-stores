@@ -6,7 +6,15 @@ List of China Stores who accept paypal or are good in general..
 <br />
 
 
+<br />
+<br />
 
+
+ _____________________________________________________
+ _____________________________________________________
+
+
+<br />
 
 
 
@@ -24,14 +32,8 @@ It´s important to know that you have very high shipping fees in general on alib
 - 100 items - 85 USD
 
 
-
-# Accept Paypal 
-
-
-
 <br />
 <br />
-
 
 
 ## Clothing
