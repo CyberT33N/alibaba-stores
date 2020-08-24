@@ -8,6 +8,9 @@ List of China Stores who accept paypal or are good in general..
 - https://www.gearbest.com  (Fully accept PayPal - FREE SHIPPING)
 - https://www.dx.com/ (Fully accept PayPal - FREE SHIPPING)
 - https://www.lightinthebox.com (Fully accept PayPal - FREE SHIPPING)
+- https://www.miniinthebox.com (Fully accept PayPal - FREE SHIPPING)
+- https://www.dhgate.com/  (Fully accept PayPal - FREE SHIPPING)
+- https://www.tinydeal.com/  (Fully accept PayPal - FREE SHIPPING)
 
 #### Very Cheap
 - https://www.chinabrands.com (Fully accept PayPal - SHIPPING FEE)
