@@ -3,9 +3,9 @@ List of China Stores who accept paypal or are good in general..
 
 
 ## Store List
-- https://www.banggood.com
-- https://www.aliexpress.com
-- https://www.alibaba.com
+- https://www.banggood.com (Fully accept PayPal)
+- https://www.aliexpress.com (only some stores accept PayPal)
+- https://www.alibaba.com (only some stores accept PayPal)
 
 <br />
 <br />
