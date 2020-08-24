@@ -24,7 +24,7 @@ List of China Stores who accept paypal or are good in general..
 <br />
 
 
-# Shipping fees
+## Shipping fees
 It´s important to know that you have very high shipping fees in general on alibaba for low amount of product. So in most cases it makes only sense to buy products when your order 100+ items!
 <br />
 - 3 items - 20 USD
@@ -38,13 +38,13 @@ It´s important to know that you have very high shipping fees in general on alib
 
 ## Clothing
 
-#### Sportswear
+### Sportswear
 - https://risesportswear.en.alibaba.com/?spm=a2700.details.cordpanyb.4.772722aboyNR8R ( 10-50 Pieces min order - Face Mask, Long Sleeve Rash Guard, Short sleeve Rash Guard, Fight Shorts, Vale Tudo Shorts, Spats & Tights, Wrestling Singlet, BJJ Jiu Jitsu Gi, Training Wear, Fashion Wear, Team Wear, Scarf, Headbands, Arm Sleeves)
 
 <br />
 <br />
 
-#### Streetwear
+### Streetwear
 - https://maqiapparel.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.17.15f16b7agYldy3 ( 100 Pieces min order - Tracksuits, Hoodies & Sweashirts, Jackets, Pants & Trousers, Shorts, Boardshorts, T-Shirts, Tank Tops, Polo Shirts)
 
 - https://akofinery.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.18.76032293TKNuUM ( 1-2 piece min order - Men's Clothing, Tees+Tanks, Polos, Hoodies+Sweatshirts, Shirts, Jackets, Bottoms, Women's Clothing, 3D Print Garments, Tie Dye Garments, Sports Wear, Beach Series )
@@ -102,7 +102,7 @@ It´s important to know that you have very high shipping fees in general on alib
 
 
 
-#### Smartphone Replacement Parts
+### Smartphone Replacement Parts
 - https://joyking.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.30.59d86fa4Rm7t76
 
 <br />
