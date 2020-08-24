@@ -3,6 +3,17 @@ List of Alibaba Stores who accept paypal or are good in general..
 
 
 
+<br />
+<br />
+
+
+# Shipping fees
+It´s important to know that you have very high shipping fees in general on alibaba for low amount of product. So in most cases it makes only sense to buy products when your order 100+ items!
+<br />
+- 3 items - 20 USD
+- 15 items - 50 USD
+- 100 items - 85 USD
+
 
 
 # Accept Paypal 
