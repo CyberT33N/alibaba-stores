@@ -118,6 +118,10 @@ It´s important to know that you have very high shipping fees in general on alib
 ### Xiaomi
 - https://www.banggood.com/Xiaomi-Redmi-Note-8-Global-Version-6_3-inch-48MP-Quad-Rear-Camera-4GB-64GB-4000mAh-Snapdragon-665-Octa-core-4G-Smartphone-p-1577312.html?rmmds=search&ID=6277631&cur_warehouse=HK
 
+### Xiaomi Redmi Note 8 Cases
+- http://www.banggood.com/Bakeey-Armor-Shockproof-Ring-Holder-Hard-PC-Protective-Case-For-Xiaomi-Redmi-Note-8-p-1600823.html?rmmds=cart_middle_products
+
+
 ### Smartphone Replacement Parts
 - https://joyking.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.30.59d86fa4Rm7t76
 
