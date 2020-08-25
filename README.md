@@ -3,18 +3,20 @@ List of China Stores who accept paypal or are good in general..
 
 
 # Store List
-- https://www.banggood.com (Fully accept PayPal - FREE SHIPPING)
-- https://www.aliexpress.com (only some stores accept PayPal - FREE SHIPPING)
-- https://www.gearbest.com  (Fully accept PayPal - FREE SHIPPING)
-- https://www.dx.com/ (Fully accept PayPal - FREE SHIPPING)
-- https://www.lightinthebox.com (Fully accept PayPal - FREE SHIPPING)
-- https://www.miniinthebox.com (Fully accept PayPal - FREE SHIPPING)
-- https://www.dhgate.com/  (Fully accept PayPal - FREE SHIPPING)
-- https://www.tinydeal.com/  (Fully accept PayPal - FREE SHIPPING)
 
-## Very Cheap
-- https://www.chinabrands.com (Fully accept PayPal - SHIPPING FEE) ** VERY BAD REPO **
-- https://www.alibaba.com (only some stores accept PayPal - SHIPPING FEE)
+## FREE Shipping - more expensive products
+- https://www.banggood.com (Fully accept PayPal)
+- https://www.aliexpress.com (only some stores accept PayPal)
+- https://www.gearbest.com  (Fully accept PayPal)
+- https://www.dx.com/ (Fully accept PayPal)
+- https://www.lightinthebox.com (Fully accept PayPal)
+- https://www.miniinthebox.com (Fully accept PayPal)
+- https://www.dhgate.com/  (Fully accept PayPal)
+- https://www.tinydeal.com/  (Fully accept PayPal)
+
+## FREE Shipping - very cheap products
+- https://www.chinabrands.com (Fully accept PayPal) ** VERY BAD REPO **
+- https://www.alibaba.com (only some stores accept PayPal)
 
 
 <br />
@@ -43,6 +45,10 @@ It´s important to know that you have very high shipping fees in general on alib
 - 15 items - 50 USD
 - 100 items - 85 USD
 
+
+Lets take as example hoodies. On FREE Shippinh sites like aliexpress, banggood and so on you pay in general like 15-20USD for this product. On alibaba as example you will pay like 5-8USD. So if you are planning to buy products for 500-1000USD+ its highly recommended to use websites like alibaba instead.
+
+If you are planning to buy single product on low amount you are better go the the FREE Shippinh websites!
 
 
 <br />
