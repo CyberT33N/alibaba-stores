@@ -30,16 +30,27 @@ List of China Stores who accept paypal or are good in general..
 
 
 <br />
+<br />
+
 
 
 
 
 # Shipping fees
-It´s important to know that you have very high shipping fees in general on alibaba for low amount of products. So in most cases it makes only sense to buy products when you order 100+ items!
+It´s important to know that you have very high shipping fees in general on alibaba and sites like this where you don´t have FREE Shipping and buy low amount of products. So in most cases it makes only sense to buy products when you order 100+ items!
 <br />
 - 3 items - 20 USD
 - 15 items - 50 USD
 - 100 items - 85 USD
+
+
+
+<br />
+<br />
+
+
+ _____________________________________________________
+ _____________________________________________________
 
 
 <br />
