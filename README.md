@@ -71,10 +71,15 @@ If you are planning to buy single product on low amount you are better go the th
 
 
 ## Xiaomi
+
+#### Xiaomi Redmi Note 8
 - https://www.banggood.com/Xiaomi-Redmi-Note-8-Global-Version-6_3-inch-48MP-Quad-Rear-Camera-4GB-64GB-4000mAh-Snapdragon-665-Octa-core-4G-Smartphone-p-1577312.html?rmmds=search&ID=6277631&cur_warehouse=HK
 
-## Xiaomi Redmi Note 8 Cases
+#### Xiaomi Redmi Note 8 Cases
 - http://www.banggood.com/Bakeey-Armor-Shockproof-Ring-Holder-Hard-PC-Protective-Case-For-Xiaomi-Redmi-Note-8-p-1600823.html?rmmds=cart_middle_products
+
+<br />
+<br />
 
 
 ## Smartphone Replacement Parts
