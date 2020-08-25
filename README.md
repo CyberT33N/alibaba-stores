@@ -46,9 +46,11 @@ It´s important to know that you have very high shipping fees in general on alib
 - 100 items - 85 USD
 
 
-Lets take as example hoodies. On FREE Shippinh sites like aliexpress, banggood and so on you pay in general like 15-20USD for this product. On alibaba as example you will pay like 5-8USD. So if you are planning to buy products for 500-1000USD+ its highly recommended to use websites like alibaba instead.
+Lets take as example hoodies. On FREE Shipping sites like aliexpress, banggood, ... you pay in general like 15-20USD for hoodies. On alibaba as example you will pay like 5-8USD. And if you buy like 1000 items it´s even cheaper!
 
-If you are planning to buy single product on low amount you are better go the the FREE Shippinh websites!
+So if you are planning to buy products for 500-1000USD+ its highly recommended to use websites like alibaba instead.
+
+If you are planning to buy single product on low amount you are better go the the FREE Shipping websites!
 
 
 <br />
