@@ -2,7 +2,7 @@
 List of China Stores who accept paypal or are good in general..
 
 
-## Store List
+# Store List
 - https://www.banggood.com (Fully accept PayPal - FREE SHIPPING)
 - https://www.aliexpress.com (only some stores accept PayPal - FREE SHIPPING)
 - https://www.gearbest.com  (Fully accept PayPal - FREE SHIPPING)
@@ -12,7 +12,7 @@ List of China Stores who accept paypal or are good in general..
 - https://www.dhgate.com/  (Fully accept PayPal - FREE SHIPPING)
 - https://www.tinydeal.com/  (Fully accept PayPal - FREE SHIPPING)
 
-#### Very Cheap
+## Very Cheap
 - https://www.chinabrands.com (Fully accept PayPal - SHIPPING FEE) ** VERY BAD REPO **
 - https://www.alibaba.com (only some stores accept PayPal - SHIPPING FEE)
 
@@ -33,13 +33,8 @@ List of China Stores who accept paypal or are good in general..
 
 
 
-# Alibaba
 
-<br />
-<br />
-
-
-## Shipping fees
+# Shipping fees
 It´s important to know that you have very high shipping fees in general on alibaba for low amount of products. So in most cases it makes only sense to buy products when you order 100+ items!
 <br />
 - 3 items - 20 USD
@@ -51,15 +46,15 @@ It´s important to know that you have very high shipping fees in general on alib
 <br />
 
 
-## Clothing
+# Clothing
 
-### Sportswear
+## Sportswear
 - https://risesportswear.en.alibaba.com/?spm=a2700.details.cordpanyb.4.772722aboyNR8R ( 10-50 Pieces min order - Face Mask, Long Sleeve Rash Guard, Short sleeve Rash Guard, Fight Shorts, Vale Tudo Shorts, Spats & Tights, Wrestling Singlet, BJJ Jiu Jitsu Gi, Training Wear, Fashion Wear, Team Wear, Scarf, Headbands, Arm Sleeves)
 
 <br />
 <br />
 
-### Streetwear
+## Streetwear
 - https://maqiapparel.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.17.15f16b7agYldy3 ( 100 Pieces min order - Tracksuits, Hoodies & Sweashirts, Jackets, Pants & Trousers, Shorts, Boardshorts, T-Shirts, Tank Tops, Polo Shirts)
 
 - https://akofinery.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.18.76032293TKNuUM ( 1-2 piece min order - Men's Clothing, Tees+Tanks, Polos, Hoodies+Sweatshirts, Shirts, Jackets, Bottoms, Women's Clothing, 3D Print Garments, Tie Dye Garments, Sports Wear, Beach Series )
@@ -112,17 +107,17 @@ It´s important to know that you have very high shipping fees in general on alib
 <br />
 
 
-## Smartphone
+# Smartphone
 
 
-### Xiaomi
+## Xiaomi
 - https://www.banggood.com/Xiaomi-Redmi-Note-8-Global-Version-6_3-inch-48MP-Quad-Rear-Camera-4GB-64GB-4000mAh-Snapdragon-665-Octa-core-4G-Smartphone-p-1577312.html?rmmds=search&ID=6277631&cur_warehouse=HK
 
-### Xiaomi Redmi Note 8 Cases
+## Xiaomi Redmi Note 8 Cases
 - http://www.banggood.com/Bakeey-Armor-Shockproof-Ring-Holder-Hard-PC-Protective-Case-For-Xiaomi-Redmi-Note-8-p-1600823.html?rmmds=cart_middle_products
 
 
-### Smartphone Replacement Parts
+## Smartphone Replacement Parts
 - https://joyking.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.30.59d86fa4Rm7t76
 
 <br />
@@ -136,6 +131,11 @@ It´s important to know that you have very high shipping fees in general on alib
 <br />
 <br />
 
-## All possible stuff
+# All possible stuff
 
 - https://mekea.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.18.54104e0cxqfqJx (headphone, Party supplies, Bags and Box, Gift and Crafts, Office and School, Cup and Bottle, Apparel, Gift set)
+
+
+
+
+
