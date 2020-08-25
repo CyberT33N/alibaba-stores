@@ -5,7 +5,7 @@ List of China Stores who accept paypal or are good in general..
 # Store List
 
 ## FREE Shipping - more expensive products
-- https://www.banggood.com (Fully accept PayPal) <h2> My personal favorite </h2>
+- https://www.banggood.com (Fully accept PayPal) ★ My personal favorite ★
 - https://www.aliexpress.com (only some stores accept PayPal)
 - https://www.gearbest.com  (Fully accept PayPal)
 - https://www.dx.com/ (Fully accept PayPal)
@@ -15,7 +15,7 @@ List of China Stores who accept paypal or are good in general..
 - https://www.tinydeal.com/  (Fully accept PayPal)
 
 ## Shipping Fee - very cheap products
-- https://www.chinabrands.com (Fully accept PayPal) ** VERY BAD REPO **
+- https://www.chinabrands.com (Fully accept PayPal) ★ VERY BAD REPO, maybe scammers? ★
 - https://www.alibaba.com (only some stores accept PayPal)
 
 
