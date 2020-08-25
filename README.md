@@ -14,7 +14,7 @@ List of China Stores who accept paypal or are good in general..
 - https://www.dhgate.com/  (Fully accept PayPal)
 - https://www.tinydeal.com/  (Fully accept PayPal)
 
-## FREE Shipping - very cheap products
+## Shipping Fee - very cheap products
 - https://www.chinabrands.com (Fully accept PayPal) ** VERY BAD REPO **
 - https://www.alibaba.com (only some stores accept PayPal)
 
