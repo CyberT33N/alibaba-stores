@@ -115,7 +115,8 @@ It´s important to know that you have very high shipping fees in general on alib
 ## Smartphone
 
 
-
+### Xiaomi
+- https://www.banggood.com/Xiaomi-Redmi-Note-8-Global-Version-6_3-inch-48MP-Quad-Rear-Camera-4GB-64GB-4000mAh-Snapdragon-665-Octa-core-4G-Smartphone-p-1577312.html?rmmds=search&ID=6277631&cur_warehouse=HK
 
 ### Smartphone Replacement Parts
 - https://joyking.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.30.59d86fa4Rm7t76
