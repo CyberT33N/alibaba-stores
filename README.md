@@ -53,6 +53,51 @@ So if you are planning to buy products for 500-1000USD+ its highly recommended t
 If you are planning to buy single product on low amount you are better go the the FREE Shipping websites!
 
 
+
+
+
+
+<br />
+<br />
+
+ _____________________________________________________
+ _____________________________________________________
+
+
+<br />
+<br />
+
+# Smartphone
+
+
+## Xiaomi
+- https://www.banggood.com/Xiaomi-Redmi-Note-8-Global-Version-6_3-inch-48MP-Quad-Rear-Camera-4GB-64GB-4000mAh-Snapdragon-665-Octa-core-4G-Smartphone-p-1577312.html?rmmds=search&ID=6277631&cur_warehouse=HK
+
+## Xiaomi Redmi Note 8 Cases
+- http://www.banggood.com/Bakeey-Armor-Shockproof-Ring-Holder-Hard-PC-Protective-Case-For-Xiaomi-Redmi-Note-8-p-1600823.html?rmmds=cart_middle_products
+
+
+## Smartphone Replacement Parts
+- https://joyking.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.30.59d86fa4Rm7t76
+
+<br />
+<br />
+
+
+ _____________________________________________________
+ _____________________________________________________
+
+
+<br />
+<br />
+
+# All possible stuff
+
+- https://mekea.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.18.54104e0cxqfqJx (headphone, Party supplies, Bags and Box, Gift and Crafts, Office and School, Cup and Bottle, Apparel, Gift set)
+
+
+
+
 <br />
 <br />
 
@@ -96,52 +141,6 @@ If you are planning to buy single product on low amount you are better go the th
 </table>
 
 
-
-
-
-
-
-<br />
-<br />
-
-<br />
-<br />
-
- _____________________________________________________
- _____________________________________________________
-
-
-<br />
-<br />
-
-
-# Smartphone
-
-
-## Xiaomi
-- https://www.banggood.com/Xiaomi-Redmi-Note-8-Global-Version-6_3-inch-48MP-Quad-Rear-Camera-4GB-64GB-4000mAh-Snapdragon-665-Octa-core-4G-Smartphone-p-1577312.html?rmmds=search&ID=6277631&cur_warehouse=HK
-
-## Xiaomi Redmi Note 8 Cases
-- http://www.banggood.com/Bakeey-Armor-Shockproof-Ring-Holder-Hard-PC-Protective-Case-For-Xiaomi-Redmi-Note-8-p-1600823.html?rmmds=cart_middle_products
-
-
-## Smartphone Replacement Parts
-- https://joyking.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.30.59d86fa4Rm7t76
-
-<br />
-<br />
-
-
- _____________________________________________________
- _____________________________________________________
-
-
-<br />
-<br />
-
-# All possible stuff
-
-- https://mekea.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.18.54104e0cxqfqJx (headphone, Party supplies, Bags and Box, Gift and Crafts, Office and School, Cup and Bottle, Apparel, Gift set)
 
 
 
