@@ -1,5 +1,5 @@
 # China Stores
-List of China Stores who accept paypal or are good in general..
+List of China Stores who accept PayPal or are good in general.. But mostly this list only contains shops which will accept PayPal :)
 
 
 # Store List
