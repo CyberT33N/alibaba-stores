@@ -133,7 +133,7 @@ If you are planning to buy single product on low amount you are better go the th
 - https://www.banggood.com/Tronsmart-Element-Mega-40W-Wireless-Bluetooth-Speaker-NFC-TWS-Stereo-Touch-Panel-Aux-in-Speaker-p-1369990.html?cur_warehouse=USA
 - https://www.banggood.com/Tronsmart-Element-Force-40W-Wireless-bluetooth-Speaker-Super-Bass-Stereo-NFC-TF-Card-IPX7-Waterproof-Outdoors-Speaker-with-Mic-p-1539489.html?rmmds=detail-left-hotproducts__1&cur_warehouse=CN
 - https://www.banggood.com/Tronsmart-T6-Plus-40W-bluetooth-Speaker-Wireless-Soundbar-TWS-NFC-TF-Card-6600mAh-Deep-Bass-Speaker-p-1655488.html?rmmds=detail-left-hotproducts__8&ID=513344&cur_warehouse=CN
-- https://www.banggood.com/40W-W ireless-bluetooth-Speaker-TWS-Function-TF-Card-Stereo-6600mAh-IPX7-Waterproof-Bass-Subwoofer-with-Mic-p-1591052.html?rmmds=search&cur_warehouse=CN ★ I buyd this one and it´s very nice! ★
+- https://www.banggood.com/40W-Wireless-bluetooth-Speaker-TWS-Function-TF-Card-Stereo-6600mAh-IPX7-Waterproof-Bass-Subwoofer-with-Mic-p-1591052.html?rmmds=search&cur_warehouse=CN ★ I buyd this one and it´s very nice! ★
 
 
 <br />
