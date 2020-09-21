@@ -182,5 +182,19 @@ If you are planning to buy single product on low amount you are better go the th
 
 
 
+<br />
+<br />
+
+
+ _____________________________________________________
+ _____________________________________________________
+
+
+<br />
+<br />
+
+
+## Resellers of expensive products for low price with mistakes etc.
+- https://www.ebay.de/sch/m.html?_ssn=truehabit&_armrs=1&_from=R40&_sacat=0&_nkw=blazer+52+slim+fit&_sop=15
 
 
