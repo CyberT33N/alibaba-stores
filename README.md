@@ -67,6 +67,25 @@ If you are planning to buy single product on low amount you are better go the th
 <br />
 <br />
 
+
+
+
+## Resellers of expensive products for low price with mistakes etc.
+- https://www.ebay.de/sch/m.html?_ssn=truehabit&_armrs=1&_from=R40&_sacat=0&_nkw=blazer+52+slim+fit&_sop=15
+
+
+
+<br />
+<br />
+
+
+ _____________________________________________________
+ _____________________________________________________
+
+
+<br />
+<br />
+
 # Smartphone
 
 
@@ -161,7 +180,8 @@ If you are planning to buy single product on low amount you are better go the th
 
 - https://akofinery.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.18.76032293TKNuUM ( 1-2 piece min order - Men's Clothing, Tees+Tanks, Polos, Hoodies+Sweatshirts, Shirts, Jackets, Bottoms, Women's Clothing, 3D Print Garments, Tie Dye Garments, Sports Wear, Beach Series )
 
-<table align="left"><tr>
+<table align="left">
+<tr>
 <td align="left" width="9999">
  
 <br />[<img width="200" src="https://sc01.alicdn.com/kf/H1da0c255b32240a3bdec461b23eab5b4D.jpg">](https://www.alibaba.com/product-detail/black-wholesale-hoodies-custom-mens-bulk_62410913308.html?spm=a2700.galleryofferlist.0.0.7530339bpBTNyJ)
@@ -179,22 +199,5 @@ If you are planning to buy single product on low amount you are better go the th
 </table>
 
 
-
-
-
-<br />
-<br />
-
-
- _____________________________________________________
- _____________________________________________________
-
-
-<br />
-<br />
-
-
-## Resellers of expensive products for low price with mistakes etc.
-- https://www.ebay.de/sch/m.html?_ssn=truehabit&_armrs=1&_from=R40&_sacat=0&_nkw=blazer+52+slim+fit&_sop=15
 
 
