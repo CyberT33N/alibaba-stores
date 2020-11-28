@@ -36,8 +36,6 @@ List of China Stores who accept PayPal or are good in general.. But mostly this 
 
 
 
-
-
 # Shipping fees
 It´s important to know that you have very high shipping fees in general on alibaba and sites like this where you don´t have FREE Shipping and buy low amount of products. So in most cases it makes only sense to buy products when you order 100+ items!
 <br />
@@ -57,17 +55,19 @@ If you are planning to buy single product on low amount you are better go the th
 
 
 
-<br />
-<br />
-
+<br><br>
  _____________________________________________________
  _____________________________________________________
+<br><br>
 
 
-<br />
-<br />
+# International Locations for faster shippinh
+- https://www.lightinthebox.com
 
-
+<br><br>
+ _____________________________________________________
+ _____________________________________________________
+<br><br>
 
 
 ## Resellers of expensive products for low price with mistakes etc. - factory seconds - rrp
