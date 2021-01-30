@@ -170,6 +170,11 @@ If you are planning to buy single product on low amount you are better go the th
 ## Indoor
 - https://www.banggood.com/3D-LED-Maple-Leaf-Table-Lamp-Remote-Control-Touch-Night-Light-Color-Change-Gift-p-1693673.html?cur_warehouse=USA&rmmds=category
 
+<br><br>
+
+## Commercial
+- Laser 9 eye: https://www.banggood.com/Disco-Strobes-Projector-Light-DMX-9-Eyes-Laser-Projection-Lamp-Voice-Control-Lighting-with-Remote-for-DJ-KTV-Club-Stage-Bar-Party-p-1730525.html?cur_warehouse=ES&rmmds=category&ID=47184
+
 
  _____________________________________________________
  _____________________________________________________
