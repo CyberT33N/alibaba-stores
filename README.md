@@ -136,8 +136,24 @@ If you are planning to buy single product on low amount you are better go the th
  _____________________________________________________
 
 
-<br />
-<br />
+<br><br>
+
+
+# earphone
+
+<br><br>
+
+## inear
+- https://www.banggood.com/BlitzWolf-BW-ES3-3_5mm-In-ear-Earphone-1_2m-Elegant-Graphene-Dynamic-Driver-Stereo-Earbuds-IPX5-Waterproof-Headphone-with-Mic-p-1561298.html?cur_warehouse=CZ&rmmds=category&ID=224
+
+
+
+
+
+
+<br><br>
+
+
 
 # Speaker
 
