@@ -5,11 +5,11 @@ List of China Stores who accept PayPal or are good in general.. But mostly this 
 # Store List
 
 ## FREE Shipping - more expensive products
-- https://www.banggood.com (Fully accept PayPal) ★ My personal favorite ★
+- https://www.banggood.com (Fully accept PayPal) ★ My personal favorite ★ - **International Warehouses**
 - https://www.aliexpress.com (only some stores accept PayPal)
 - https://www.gearbest.com  (Fully accept PayPal)
 - https://www.dx.com/ (Fully accept PayPal)
-- https://www.lightinthebox.com (Fully accept PayPal)
+- https://www.lightinthebox.com (Fully accept PayPal) - **International Warehouses**
 - https://www.miniinthebox.com (Fully accept PayPal)
 - https://www.dhgate.com/  (Fully accept PayPal)
 - https://www.tinydeal.com/  (Fully accept PayPal)
@@ -23,16 +23,39 @@ List of China Stores who accept PayPal or are good in general.. But mostly this 
 <br />
 
 
-<br />
-<br />
-
-
+<br><br>
  _____________________________________________________
  _____________________________________________________
+<br><br>
 
 
-<br />
-<br />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -55,14 +78,57 @@ If you are planning to buy single product on low amount you are better go the th
 
 
 
-<br><br>
- _____________________________________________________
- _____________________________________________________
-<br><br>
 
 
-# International Locations for faster shippinh
-- https://www.lightinthebox.com
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 <br><br>
  _____________________________________________________
@@ -80,16 +146,52 @@ If you are planning to buy single product on low amount you are better go the th
 - https://www.ebay.com/str/dymoda/Coats-Jackets-Vests/_i.html?_sacat=57988  ★ **BIG SHOP** ★
 - http://myworld.ebay.com/fashta-au/   ★ **BIG SHOP** ★
 
-<br />
-<br />
 
 
- _____________________________________________________
- _____________________________________________________
 
 
-<br />
-<br />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 # Smartphone
 
@@ -109,16 +211,45 @@ If you are planning to buy single product on low amount you are better go the th
 ## Smartphone Replacement Parts
 - https://joyking.en.alibaba.com/productlist.html?spm=a2700.icbuShop.88.30.59d86fa4Rm7t76
 
-<br />
-<br />
 
 
- _____________________________________________________
- _____________________________________________________
 
 
-<br />
-<br />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 # All possible stuff
 
@@ -128,15 +259,28 @@ If you are planning to buy single product on low amount you are better go the th
 
 
 
-<br />
-<br />
 
 
- _____________________________________________________
- _____________________________________________________
+
+
+
+
+
+
+
+
+
 
 
 <br><br>
+
+ _____________________________________________________
+
+ _____________________________________________________
+
+<br><br>
+
+
 
 
 # earphone
@@ -192,12 +336,38 @@ If you are planning to buy single product on low amount you are better go the th
 - Laser 9 eye: https://www.banggood.com/Disco-Strobes-Projector-Light-DMX-9-Eyes-Laser-Projection-Lamp-Voice-Control-Lighting-with-Remote-for-DJ-KTV-Club-Stage-Bar-Party-p-1730525.html?cur_warehouse=ES&rmmds=category&ID=47184
 
 
- _____________________________________________________
- _____________________________________________________
 
 
-<br />
-<br />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<br><br>
+
+ _____________________________________________________
+
+ _____________________________________________________
+
+<br><br>
+
+
 
 
 # Clothing
